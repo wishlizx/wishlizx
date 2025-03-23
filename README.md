@@ -1,4 +1,3 @@
-<p align="center">
 ![alt text](https://i.postimg.cc/mDd0B1RY/Untitled288-20250323012108.png)
 
 <!--
