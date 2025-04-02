@@ -1,8 +1,8 @@
 <p align="center">
-    <img src="https://i.postimg.cc/mDd0B1RY/Untitled288-20250323012108.png">
+    <img src="https://i.postimg.cc/28kLvkPH/Untitled299-20250402190449.png">
 </p>
 <p align="center">
-    be4⠀every⠀load
+    don't panic, my lord
 <br>
     ⊹
 <br>
