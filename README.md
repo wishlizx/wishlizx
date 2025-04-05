@@ -1,12 +1,12 @@
 <p align="center">
-    <img src="https://i.postimg.cc/28kLvkPH/Untitled299-20250402190449.png">
+    <img src="https://i.postimg.cc/sDyTBy53/Untitled301-20250405131718.png">
 </p>
 <p align="center">
-    don't panic, my lord
+    more needs, more opportunities!
 <br>
     ⊹
 <br>
-    very stressed lately, always iwvec uf
+    very stressed lately, always iwvec unless close
 </p>
 <!--
 **wishlizx/wishlizx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
