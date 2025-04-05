@@ -1,8 +1,8 @@
 <p align="center">
-    <img src="https://i.postimg.cc/sDyTBy53/Untitled301-20250405131718.png">
+    <img src="https://i.postimg.cc/qvfkdLR5/Untitled305-20250405190445.png">
 </p>
 <p align="center">
-    more needs, more opportunities!
+    your throat searing and parched
 <br>
     ⊹
 <br>
