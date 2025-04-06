@@ -6,7 +6,7 @@
 <br>
     ⊹
 <br>
-    very stressed lately, always iwvec unless close
+    not rlly feeling like myself lately, iwvec & be patient pls
 </p>
 <!--
 **wishlizx/wishlizx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
