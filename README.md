@@ -1,8 +1,8 @@
 <p align="center">
-    <img src="https://i.postimg.cc/qvfkdLR5/Untitled305-20250405190445.png">
+    <img src="https://i.postimg.cc/L641NkmW/Untitled308-20250414214845.png">
 </p>
 <p align="center">
-    your throat searing and parched
+    dirty&dummy
 <br>
     ⊹
 <br>
