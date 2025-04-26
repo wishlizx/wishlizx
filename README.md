@@ -1,8 +1,8 @@
 <p align="center">
-    <img src="https://i.postimg.cc/fLBdx92p/Untitled288-20250418200756.png">
+    <img src="https://i.postimg.cc/QxBsSWDC/Untitled326-20250426214023-fliter-warm-sea-channel-red-mode-normal.png">
 </p>
 <p align="center">
-    aye, Chance! he callin' my line
+    whatever you go through, I do too
 <br>
     ⊹
 <br>
