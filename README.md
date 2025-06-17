@@ -2,11 +2,11 @@
     <img src="https://i.postimg.cc/bY77FwTd/New-Project-4.png">
 </p>
 <p align="center">
-    His voice speaks to me through the radio
+    The unfortunate
 <br>
     ⊹
 <br>
-    The unforunate
+    Ron, I could never begin to explain.
 </p>
 <!--
 **wishlizx/wishlizx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
