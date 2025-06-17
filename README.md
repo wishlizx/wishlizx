@@ -6,7 +6,7 @@
 <br>
     ⊹
 <br>
-    Ron, I could never begin to explain.
+    Slendytubbies, once a Slenderman parody, now a tale to tell.
 </p>
 <!--
 **wishlizx/wishlizx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
