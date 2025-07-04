@@ -6,7 +6,7 @@
 <br>
     ⊹
 <br>
-    "⠀. . . Who's the snowball?⠀"
+    rarely active,, lowk getting bored of pt lately soz :(
 </p>
 <!--
 **wishlizx/wishlizx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
