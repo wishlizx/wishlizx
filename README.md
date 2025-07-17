@@ -1,10 +1,10 @@
 <p align="center">
-    <img src="https://i.postimg.cc/1zyWQVf3/11-fliter-warm-sea-channel-red-mode-normal-2.png">
+    <img src="https://i.postimg.cc/NjsdVpg0/Untitled5-20250717151431.jpg">
 </p>
 <p align="center">
-    The unfortunate
+    
 <br>
-    ⊹
+
 <br>
     rarely active,, lowk getting bored of pt lately soz :(
 </p>
