@@ -1,5 +1,5 @@
 <p align="center">
-    <img src="https://i.postimg.cc/QdLS2DNy/drossel1v2.png">
+    <img src="https://files.catbox.moe/wtmzsy.png">
 </p>
 <p align="center">
     
