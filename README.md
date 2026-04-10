@@ -2,7 +2,7 @@
     <img src="https://files.catbox.moe/8b4fs1.png">
 </p>
 <p align="center">
-    <img src="https://files.catbox.moe/b1l86p.png">
+    <img src="https://files.catbox.moe/fgay4f.png">
 <p/>
 <p align="center">
     <a href="https://www.tumblr.com/nikolzzz">art creds<a/>
