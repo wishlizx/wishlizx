@@ -1,8 +1,8 @@
 <p align="center">
-    <img src="https://files.catbox.moe/8b4fs1.png">
+    <img src="https://i.postimg.cc/hj0PtfGH/easterman4.png">
 </p>
 <p align="center">
-    <img src="https://files.catbox.moe/fgay4f.png">
+    <img src="https://i.postimg.cc/gjJdcsQM/tumblr-4a181654d8a90301a337b43d86e8ce2a-d74d9152-1280-(2).png">
 <p/>
 <p align="center">
     <a href="https://www.tumblr.com/nikolzzz">art creds<a/>
