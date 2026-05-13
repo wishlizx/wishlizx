@@ -8,7 +8,7 @@
     <img src="https://files.catbox.moe/l3un93.png">
 </p>
 <p align="center">
-    <a href="https://wishlizx.atabook.org/">新book<a/>⠀⠀<a href="https://rentry.co/vq">main<a/>⠀⠀<a href="https://rentry.co/preservingly">directory<a/>⠀⠀<a href="https://rentry.co/sex-fairy">pt info<a/>⠀⠀<a href="https://github.com/pt-players">@pt-players<a/>
+    <a href="https://wishlizx.atabook.org/">新book<a/>⠀⠀<a href="https://rentry.co/vq">main<a/>⠀⠀<a href="https://rentry.co/preservingly">directory<a/>⠀⠀<a href="https://rentry.co/c-h">pt info<a/>⠀⠀<a href="https://github.com/pt-players">@pt-players<a/>
 <p/>
 <p align="center">
     $\color{#4e3b14}{c+h~always~enc~~~~~int~anytime}$
