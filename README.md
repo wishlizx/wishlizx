@@ -1,11 +1,11 @@
 <p align="center">
 <sub><a href="https://github.com/lovinglist">@lovinglist<a/> ⠀my cruni⠀♡ ⠀<a href="https://wishlizx.atabook.org/">新book<a/> ⠀<a href="https://rentry.co/c-h">pt info<a/>
 <p align="center">
-    <img width="200" src="https://i.postimg.cc/B6d65ppr/14.png">
+    <img width="220" src="https://files.catbox.moe/zdyq5p.gif">
 <p/>
 <p align="center">
-<sub>c+h enc always⠀⠀ ⠀int anyone anytime</sub>
+<sub>c+h enc always ⠀⠀ ⠀ int anyone anytime</sub>
 <p/>
 <p align="center">
-<sup>no dni unls u wanna bmf ⠀⠀ ⠀ w2i pref</sup>
+<sup>no dni unls u wanna bmf ⠀⠀⠀  ⠀ w2i pref</sup>
 <p/>
