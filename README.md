@@ -7,5 +7,5 @@
   </a>
 </p>
 <p align="center">
-<sup><a href="https://wishlizx.atabook.org/">新book<a/> ⠀<a href="https://rentry.co/c-h">pt info<a/> ⠀<a href="https://rentry.co/7trialsofHABIT">directory<a/> ⠀<a href="https://rentry.co/habits">main rentry<a/>
+<sup><a href="https://wishlizx.atabook.org/">新book<a/> ⠀<a href="https://rentry.co/c-h">pt info<a/> ⠀<a href="https://rentry.co/7trialsofHABIT">directory<a/> ⠀<a href="https://rentry.co/habits">main<a/> ⠀<a href="https://rentry.co/evans">ext<a/>
 </p>
